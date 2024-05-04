@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Alex
+- 👀 I’m interested in coding, and hacking
+- 🌱 I’m currently learning coding/hacking
+- 📫 How to reach me "gikayoy812@deligy.com", {fake email}, I just don't want anyone to reach me but if you send me something don't worry I'll try to answer.
